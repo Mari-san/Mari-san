@@ -25,5 +25,4 @@ e-mail: marisantosrj16@gmail.com
 ---
 *"O código é a poesia da lógica."*
 
-![work-quit](https://github.com/user-attachments/assets/51e40290-2292-44cd-8de2-45bafa2d060e)
 
